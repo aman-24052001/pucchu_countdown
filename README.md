@@ -1,2 +1,2 @@
 # pucchu_countdown
- eheehee
+78 years Contract Countdown
